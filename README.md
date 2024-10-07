@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @RobbieB2479
+- 👀 I’m interested in Electronics and learning the basics of coding!
+- 🌱 I’m currently learning electronics and computer engineering @ The University of York
+- 💞️ I’m looking to collaborate on not much tbh... Just like batman, I work alone :P
+- 📫 Interested in speaking to me send me an email! 
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm also do Go-Karting so if you can't reach me then chances are I'm at the track!
